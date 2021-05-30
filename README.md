@@ -1,5 +1,5 @@
 - 👋 Hi, @RHagatama here
-- 👀 I’m looking for hilaroius insight
+- 👀 I’m looking for hilarious insight
 - 🌱 Currently enjoy doing playful project
 - 📫 Go go go!
 
